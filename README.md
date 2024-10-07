@@ -7,4 +7,4 @@ Efter brexit valde jag att återvända till Sverige och arbetar nu inom hotellbr
 >All the world's a stage, and all the men and women merely players. They have their exits and their entrances; And one man in his time plays many parts." - William Shakespeare
 
  
-Kontakta mig gärna på: [LinkedIn](www.linkedin.com/in/cornelia-li-schöld-b49698140)
+Kontakta mig gärna på: [LinkedIn](https://www.linkedin.com/in/cornelia-li-schöld-b49698140/)
